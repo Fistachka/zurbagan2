@@ -40,3 +40,8 @@ Previous lesson:
 ![pexels-mccutcheon-1148998](https://github.com/user-attachments/assets/6585541f-9089-45dd-8909-32072a189917 =200x200)
 stolbitsa.com/fistachka/vyuga4<br><br>
 
+![4](https://github.com/user-attachments/assets/78c84a5b-75c7-4add-b34d-983012572402)
+![3](https://github.com/user-attachments/assets/01479efb-c892-4d18-bdcd-f867fa1099cd)
+
+
+
