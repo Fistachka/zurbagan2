@@ -4,7 +4,7 @@
 ![4](https://github.com/user-attachments/assets/78c84a5b-75c7-4add-b34d-983012572402)
 
 <iframe width="315" height="560" src="https://www.youtube.com/embed/atnMlrv2WCo" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share"allowfullscreen></iframe>
-<iframe width="560" height="315" src="https://www.youtube.com/embed/cerpvMxuH7E" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share"allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/AsU5E5TnjwI" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share"allowfullscreen></iframe>
 
 Два часа на часах, день ненастный не нашего века,
 Смотрит девушка с пристани вслед кораблю,
@@ -21,7 +21,7 @@ stolbitsa.com/fistachka/zurbagan<br><br>
 ![4](https://github.com/user-attachments/assets/78c84a5b-75c7-4add-b34d-983012572402)
 
 <iframe width="315" height="560" src="https://www.youtube.com/embed/08M9jVO9zx4" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share"allowfullscreen></iframe>
-<iframe width="560" height="315" src="https://www.youtube.com/embed/2YMQ5F6rmz0" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share"allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KRhHKlKgoic" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share"allowfullscreen></iframe>
 
 Dva chasa na chasah, den' nenastnyj ne nashego veka,
 Smotrit devushka s pristani vsled korablyu,
